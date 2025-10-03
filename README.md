@@ -2,7 +2,7 @@
 
 Franco San Martin 
 
-Nacionalidad:🇦🇷 🇭🇷
+Nacionalidad:Argentina/Croacia
 
 Estudiante de Ciencia de Datos en la Univerisdad Austral de Rosario
 
